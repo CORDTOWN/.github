@@ -1,2 +1,2 @@
-# 🏠 CORD TOWN
+# 🏠 코드타운(CORD TOWN)
 안전하고 매력적인 커뮤니티
